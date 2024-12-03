@@ -5,3 +5,5 @@ Since every time you click off of the site, then go back onto it it randomizes y
 Once you are done setting up your PC this guy named
 adic28 will guide you on how to use your PC.
 There's really nothing else I can say because I'm all out of ideas
+I accidentally forgot that it has my profile on it.
+The password for it is truckduckpluck exactly how I typed it no, S or separations
